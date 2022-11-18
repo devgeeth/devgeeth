@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Machine Learning**
 
-- 💬 Ask me about **Anthropology, business, polity**
+- 💬 Ask me about **Anthropology, business, polity and international relations**
 
 - 📫 How to reach me **geeth.dv@gmail.com**
 
